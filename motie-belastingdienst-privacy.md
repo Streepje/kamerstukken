@@ -26,7 +26,7 @@ En gaat over tot de orde van de dag.
 **[2]:** _Van Miltenburg, O. (2018, 5 juli). Belastingdienst gebruikt burgerservicenummer onwettig in btw-identificatienummer. Geraadpleegd op 8 december 2018, van https://tweakers.net/nieuws/140667/belastingdienst-gebruikt-burgerservicenummer-onwettig-in-btw-identificatienummer.html_  
 **[3]:** _Van Miltenburg, O. (2018, 12 oktober). Belastingdienst kan beveiliging gevoelige persoonsgegevens niet garanderen. Geraadpleegd op 8 december 2018, van https://tweakers.net/nieuws/144467/belastingdienst-kan-beveiliging-gevoelige-persoonsgegevens-niet-garanderen.html_  
 **[4]:** _Van Voorst, S. (2017, 30 juni). Belastingdienst doet melding van datalekken na intern onderzoek. Geraadpleegd op 8 december 2018, van https://tweakers.net/nieuws/126609/belastingdienst-doet-melding-van-datalekken-na-intern-onderzoek.html_  
-**[5]":** _Wokke, A. (2018, 15 november). Rechter: stichting Museumkaart moet privégegevens aan Belastingdienst geven. Geraadpleegd op 8 december 2018, van https://tweakers.net/nieuws/145835/rechter-stichting-museumkaart-moet-privegegevens-aan-belastingdienst-geven.html_  
+**[5]:** _Wokke, A. (2018, 15 november). Rechter: stichting Museumkaart moet privégegevens aan Belastingdienst geven. Geraadpleegd op 8 december 2018, van https://tweakers.net/nieuws/145835/rechter-stichting-museumkaart-moet-privegegevens-aan-belastingdienst-geven.html_  
 
 ---
 
