@@ -12,7 +12,7 @@ constaterende, dat de Belastingdienst niet kan garanderen dat gevoelige gegevens
 
 constaterende, dat er al eerder data is gelekt bij de Belastingdienst;^(**[4]**)
 
-constaterende, dat ondanks de al eerdere datalek bij de Belastingdienst, de rechter onlangs geoordeeld heeft dat de stichting Museumkaart privégegevens aan de Belastingdienst moet geven;^(**[5]**)
+constaterende, dat ondanks deze datalek, de rechter onlangs geoordeeld heeft dat de stichting Museumkaart privégegevens aan de Belastingdienst moet geven;^(**[5]**)
 
 roept de regering op, tot het veranderen van de roekeloze wijze waarop de Belastingdienst met privégegevens omgaat;
 
