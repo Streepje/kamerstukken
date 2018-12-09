@@ -31,5 +31,5 @@ En gaat over tot de orde van de dag.
 ---
 
 ##Deze motie is ingediend door /u/-___-_ namens D18, met
-##steun van het CDA
+##steun van het CDA, de SP
 ##De eerste lezing loopt tot <dag>, <dag> december 2018.
